@@ -6,6 +6,7 @@
 - 😄 Pronouns: he/man
 - ⚡ Fun fact: you maybe a boltzmann brain.
 
+btw i have a youtube channel with 100k subs :)
 
 to see my portfolio: https://himanart.github.io/p/
 
