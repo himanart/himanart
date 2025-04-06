@@ -7,7 +7,7 @@
 - ⚡ Fun fact: you maybe a boltzmann brain.
 
 
-to see my portfolio: himanart.github.io/p
+to see my portfolio: https://himanart.github.io/p/
 
 <!---
 himanart/himanart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
