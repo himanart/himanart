@@ -1,7 +1,7 @@
 - 👋 Hi, I’m himanshu (from a planet called earth)
 - 👀 I’m interested in graphic designing, startups, little bit coding.
 - 🌱 I’m currently learning bitcoin & cryptocurrency
-- 💞️ I’m looking to collaborate on my startup 
+- 🤝 I’m looking for a human who can write code. 
 - 📫 How to reach me logicalhiman@gmail.com
 - 😄 Pronouns: he/man
 - ⚡ Fun fact: you maybe a boltzmann brain.
