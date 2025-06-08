@@ -8,8 +8,6 @@
 
 btw i have a youtube channel with 100k subs :)
 
-to see my portfolio: https://himanart.github.io/p/
-
 <!---
 himanart/himanart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
