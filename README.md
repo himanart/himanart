@@ -2,7 +2,7 @@
 - 👀 I’m interested in graphic designing, startups, little bit coding.
 - 🌱 I’m currently learning bitcoin & cryptocurrency
 - 🤝 I’m looking for a human who can write code. 
-- 📫 How to reach me logicalhiman@gmail.com
+- 📫 How to reach me neuhiman@gmail.com
 - 😄 Pronouns: he/man
 - ⚡ Fun fact: you maybe a boltzmann brain.
 
