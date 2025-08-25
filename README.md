@@ -6,7 +6,7 @@
 - 😄 Pronouns: he/man
 - ⚡ Fun fact: you maybe a boltzmann brain.
 
-btw i have a youtube channel with 100k subs :)
+also i have a youtube channel with 100k subs :)
 
 <!---
 himanart/himanart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
